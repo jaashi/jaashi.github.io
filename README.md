@@ -1,1 +1,0 @@
-# jaashi.github.io
